@@ -3,8 +3,8 @@
 - 👀 **Interested in:** Crafting immersive fantasy worlds and hardcore survival mechanics.
 - 🌱 **Currently learning:** The dark arts of **Unity UI (C#)** — making buttons look good and actually work.
 - 💞️ **Looking to collaborate on:** An indie fantasy project. If there are dragons or crafting systems, I'm in!
-- 📫 **How to reach:** [Твоя ссылка или почта]
-- 😄 **Pronouns:** He/Him (или твои)
+- 📫 **How to reach:** 777sigma2301@gmail.com
+- 😄 **Pronouns:** He/Him
 - ⚡ **Fun fact:** I survive in real life just as well as I do in games... as long as there's a "Respawn" button and coffee.
 
 ---
